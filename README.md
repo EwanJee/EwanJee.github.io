@@ -1,2 +1,2 @@
-# EwanJee.github.io
-PortFolio US Version
+# 지예환's Portfolio 🔥
+> https://www.ewanjee.com
